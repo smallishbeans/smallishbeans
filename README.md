@@ -1,10 +1,13 @@
 # HAiii ^_^ 
 <img src="https://files.catbox.moe/52b3fw.png">
-	
 <img src="https://codehs.com/uploads/7aaee945b3cc4fac1aae0fcad70b1fed">
 <br>
 <img src="https://i.postimg.cc/jq4hBZD6/Untitled1445-20230807101953.png">
-Call me by my current skin plz!
+<br>
+<h2>len or jimmy 15 ꒱<br></h4>
+<h3>🍍he ₊ she gyne bigender<br></h3>
+<h2>autistic + <a href="https://rentry.co/periodictablenya">inte rests</a></h2>
+<br>Call me by my current skin plz!
 I go by any pronouns but i prefer not using they on me ^_^
 <br>
 I love love love Minecraft..and a LOT of other stuff!!
