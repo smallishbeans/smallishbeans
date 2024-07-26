@@ -1,7 +1,7 @@
 # HAiii ^_^ 
 <img src="https://files.catbox.moe/52b3fw.png">
 	
-<img src="https://codehs.com/uploads/867c714387008856a3cb3ce8fd1a722e" width="350" height="343">
+<img src="https://codehs.com/uploads/867c714387008856a3cb3ce8fd1a722e">
 <br>
 Call me by my current skin plz!
 I go by any pronouns but i prefer not using they on me ^_^
