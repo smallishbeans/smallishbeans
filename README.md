@@ -4,11 +4,11 @@
 <br>
 <img src="https://i.postimg.cc/jq4hBZD6/Untitled1445-20230807101953.png">
 <br>
-<h2>len or jimmy 15 ꒱<br></h4>
-<h3>🍍he ₊ she gyne bigender<br></h3>
+<h2>martyn or jimmy 15 ꒱<br></h4>
+<h3>🍍he ₊ him gyne bigender<br></h3>
 <h2>autistic + <a href="https://rentry.co/periodictablenya">inte rests</a></h2>
 <br>Call me by my current skin plz!
-I go by any pronouns but i prefer not using they on me ^_^
+I go by any pronouns (bc they change a lot) but i prefer not using they on me ^_^
 <br>
 I love love love Minecraft..and a LOT of other stuff!!
 If u see anything on my rentry (periodictablenya) that u know PLEASE INT!!1
