@@ -4,7 +4,7 @@
 <br>
 <img src="https://i.postimg.cc/jq4hBZD6/Untitled1445-20230807101953.png">
 <br>
-<h2>martyn or jimmy 15 ꒱<br></h4>
+<h2>martyn or wilson 15 ꒱<br></h4>
 <h3>🍍he ₊ him gyne bigender<br></h3>
 <h2>autistic + <a href="https://rentry.co/periodictablenya">inte rests</a></h2>
 <br>Call me by my current skin plz!
