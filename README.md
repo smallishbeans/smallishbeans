@@ -1,23 +1,19 @@
 # HAiii ^_^ 
 <img src="https://files.catbox.moe/52b3fw.png">
-<img src="https://codehs.com/uploads/7aaee945b3cc4fac1aae0fcad70b1fed">
-<br>
-<img src="https://i.postimg.cc/jq4hBZD6/Untitled1445-20230807101953.png">
-<br>
 <h2>martyn or wilson 15 ꒱<br></h4>
-<h3>🍍he ₊ him gyne bigender<br></h3>
+<h3>🍍he ₊ <a href="https://en.pronouns.page/@limitedlife">any</a> gyne bigender<br></h3>
 <h2>autistic + <a href="https://rentry.co/periodictablenya">inte rests</a></h2>
-<br>Call me by my current skin plz!
-I go by any pronouns (bc they change a lot) but i prefer not using they on me ^_^
+<br>if your unsure about my name rn call me by my current skin!
+feel free to use any pronouns on me as they change a lot, but plz dont use they/them ^_^
 <br>
-I love love love Minecraft..and a LOT of other stuff!!
-If u see anything on my rentry (periodictablenya) that u know PLEASE INT!!1
-SHADOWCADET 4 8 YRS! <3 MY BIGGESSTTTTT INTRESTS RN ARE **SMALLISHBEANS**,
+my special interest is minecraft but i love a lot of different things!!
+if u see anything on my rentry that u know PLEASE INT!!1
+going on 9 years as a shadowcadet!!! biggest fan of rn: SMALLISHBEANS!!,
 JAMES DEAN!!, SMASH MOUTH!!!!!!! PLEASEEEEEEE IM BEGGIN YOU TALK TO ME ABOUT THESE!!!
 I LOVEEEEE ALL MY FRIENDS <3 ALWAYS INT WITH ME!!
 C+H IS ALWAYS OPEN TOO!!!!
 <br>
-<p>also i like coding so here's <a href="https://chezzing.neocities.org">this...</a></p>
+<p>also i like coding so sometimes i code on here<!!</p>
 <br>
 <br>
 <img src="https://codehs.com/uploads/433549f997906dcefd9f70820b77b08c">
