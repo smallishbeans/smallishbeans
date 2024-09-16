@@ -1,6 +1,6 @@
 # HAiii ^_^ 
 <img src="https://files.catbox.moe/52b3fw.png">
-<h2>martyn or display 15 ꒱<br></h4>
+<h2>martyn or display 13+ ꒱<br></h4>
 <h3>🍍he ₊ <a href="https://en.pronouns.page/@limitedlife">time</a> gyne bigender<br></h3>
 <h2>autistic + <a href="https://rentry.co/periodictablenya">inte rests</a></h2>
 <br>if your unsure about my name rn call me by my current skin!
