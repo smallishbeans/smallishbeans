@@ -1,4 +1,4 @@
-# HAiii ^_^ (IM GOING TO CRASH OUT. JOEL WAS MY 3RD ON YT RECAP IM ACTUALLY GOING TO CRASH OUT IM SUCH A FAKE FAN IM PHYSICALLY ILL BECAUSE OF THIS DUDE.)
+# HAiii ^_^ 
 <img src="https://file.garden/Zt0H78gKC1ZH6PKq/2024_10_16_115_Kleki.png">
 <h2>martyn or display 13+ ꒱<br></h4>
 <h3>🍍he ₊ <a href="https://en.pronouns.page/@limitedlife">time</a> gyne bigender<br></h3>
