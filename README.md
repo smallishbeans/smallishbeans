@@ -1,5 +1,5 @@
 # HAiii ^_^ 
-<img src="https://files.catbox.moe/vyif6t.gif">
+<img src="https://files.catbox.moe/vyif6t.gif" width="200" height="40">
 <img src="https://file.garden/Zt0H78gKC1ZH6PKq/2024_10_16_115_Kleki.png">
 <h2>martyn or display 13+ ꒱<br></h4>
 <h3>🍍he ₊ <a href="https://en.pronouns.page/@limitedlife">time</a> gyne bigender<br></h3>
