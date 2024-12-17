@@ -1,9 +1,11 @@
-# HAiii ^_^ 
-<img src="https://files.catbox.moe/8otegh.gif" width="200" height="40"> <img src="https://files.catbox.moe/7zkagf.gif" width="200" height="40">
-<img src="https://file.garden/Zt0H78gKC1ZH6PKq/2024_10_16_115_Kleki.png">
-<h2>martyn or display 13+ ꒱<br></h4>
-<h3>🍍he ₊ <a href="https://en.pronouns.page/@limitedlife">time</a> gyne bigender<br></h3>
-<h2>autistic + <a href="https://rentry.co/periodictablenya">inte rests</a></h2>
-<img src="https://codehs.com/uploads/433549f997906dcefd9f70820b77b08c">
+# ᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗ
 
-![](https://komarev.com/ghpvc/?username=smallishbeans&color=yellowgreen&style=plastic)
+<p align="center">
+  <img src="https://files.catbox.moe/b6z0bm.png" />
+  <img src="https://files.catbox.moe/3wy936.png" width="650" height="600" /> <br>
+𓎢 <img src="https://file.garden/ZfxdXmIg9weivlYT/pix./red13" /> martyn joel ⊹ ¹⁵<br>
+he him <img src="https://file.garden/ZfxdXmIg9weivlYT/pix./RED17"/> very <a href="https://rentry.co/periodictablenya">autistic</a> <br>
+enfp agender lesbian* <img src="https://file.garden/ZfxdXmIg9weivlYT/pix./red48"/> <br>
+<img src ="https://files.catbox.moe/dwjo4i.png"/> more <a href="https://rentry.co/Bigbst4tz22">info</a> 𐙚‎ <a href="https://rentry.co/smallizhbeans">direct</a>ory
+</p>
+<h2>ᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗ<br></h4>
