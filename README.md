@@ -2,7 +2,7 @@
 ‎ <p align="center">
 [![Untitled226-20250221210231.png](https://files.catbox.moe/vgm3w5.png)](https://files.catbox.moe/vgm3w5.png)
 <br>
-$${\color{#bad8e4}Martyn}$$ -- He / $${\color{#c9d18e}Mirror}$$ </br>
+$${\color{#bad8e4}Elliot}$$ -- He / $${\color{#c9d18e}Him}$$ </br>
 𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟 <br>
 $${\color{#bad8e4}15 y/o}$$ ![wing1](https://files.catbox.moe/1rx30a.gif)  MST ![wing2](https://files.catbox.moe/ieir5p.gif)  <a href="https://github.com/couriwaymc">Taken</a> <br>
 ![angel](https://files.catbox.moe/3w6ju0.gif) ![stupid](https://files.catbox.moe/p4cb6p.gif) ![agender](https://files.catbox.moe/128goj.png)![asexual](https://files.catbox.moe/xaxhsu.png)![aroflux](https://files.catbox.moe/o49n0d.png) ![sweetheart](https://files.catbox.moe/6w2sdn.gif)
