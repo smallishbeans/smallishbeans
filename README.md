@@ -5,8 +5,8 @@
 <p align="center">
 ${\textsf{\color{#0D1117}placeholddddfsfssfddffdfdfdfdfdfdfdsfsfdder}}$ ${\textsf{\color{#fbf89a}◟elliot or}}$ <br>
 ${\textsf{\color{#0D1117}placeholddddfsfssfddffdfdfdfdfdfdfdsfsfdder}}$ ${\textsf{\color{#fbf89a}(★‿★)‎ ‎ ‎‎  ‎ chiaki}}$ <br>
-${\textsf{\color{#0D1117}placeholddddfsfssfddffdfdfdfdfdfdfdsfsfdder}}$ ${\textsf{\color{#fbf89a}she  ⊹  her   𓏵}}$ <br>
-${\textsf{\color{#0D1117}placeholddddfsfssfddffdfdfdfdfdfdfdsfsfdder}}$ ${\textsf{\color{#fbf89a}atabook ✦ rentry}}$ <br>
+${\textsf{\color{#0D1117}placeholddddfsfssfddffdfdfdfdfdfdfdsfsfdder}}$ ${\textsf{\color{#fbf89a}she  ⊹  her   𓏵}}$ <img width="2.5%" src="https://files.catbox.moe/128goj.png"> <img width="2.5%" src="https://files.catbox.moe/o49n0d.png"> <br>
+${\textsf{\color{#0D1117}placeholddddfsfssfddffdfdfdfdfdfdfdsfsfdder}}$ ${\textsf{\color{#fbf89a}atabook ✦ rentry}}$<br>
 </br>
   </a></p>
 
