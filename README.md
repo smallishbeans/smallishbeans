@@ -5,8 +5,8 @@
 <p align="center">
 ${\textsf{\color{#fcfed9}placeholder}}$ <br>
 ${\textsf{\color{#fbf89a}placeholder}}$ <br>
-${\textsf{\color{#deed7e}placeholder}}$ <br>
-${\textsf{\color{#aeba52}placeholder}}$ <br>
+${\textsf{\color{#deed7e}this is wip ok}}$ <br>
+${\textsf{\color{#aeba52}(o゜▽゜)o☆}}$ <br>
 </br>
   </a></p>
 
@@ -16,5 +16,6 @@ ${\textsf{\color{#aeba52}placeholder}}$ <br>
 </p>
 <p align="center">
 <img width="310" src="https://lastfm.dedomil.workers.dev/smallishmemes?dark">
+  ${\textsf{\color{#1d232b}coded by me ! art : y0gurtfae + fllooploop + ??? }}$
 </br>
   </a></p>
