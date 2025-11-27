@@ -4,9 +4,9 @@
 </p>
 <p align="center">
 ${\textsf{\color{#0D1117}placeholddddfsfssfddffdfdfdfdfdfdfdsfsfdder}}$ <br>
-${\textsf{\color{#0D1117}placeholddddfsfssfddffdfdfdfdfdfdfdsfsfdder}}$ ${\textsf{\color{#fbf89a}◟elliot or}}$ <br>
-${\textsf{\color{#0D1117}placeholddddfsfssfddffdfdfdfdfdfdfdsfsfdder}}$ ${\textsf{\color{#fbf89a}(★‿★)‎ ‎ ‎‎  ‎ chiaki}}$ <br>
-${\textsf{\color{#0D1117}placeholddddfsfssfddffdfdfdfdfdfdfdsfsfdder}}$ ${\textsf{\color{#fbf89a}she  ⊹  her&emsp; &emsp; &emsp;𓏵&emsp;}}$ <img width="2.5%" src="https://files.catbox.moe/128goj.png"> <img width="2.5%" src="https://files.catbox.moe/o49n0d.png"> <br>
+${\textsf{\color{#0D1117}placeholddddfsfssfddffdfdfdfdfdfdfdsfsfdder}}$ ${\textsf{\color{#E45B59}◟elliot or}}$ <br>
+${\textsf{\color{#0D1117}placeholddddfsfssfddffdfdfdfdfdfdfdsfsfdder}}$ ${\textsf{\color{#FBC678}(★‿★)‎ ‎ ‎‎  ‎ chiaki}}$ <br>
+${\textsf{\color{#0D1117}placeholddddfsfssfddffdfdfdfdfdfdfdsfsfdder}}$ ${\textsf{\color{#78DDB7}she  ⊹  her&emsp; &emsp; &emsp;𓏵&emsp;}}$ <img width="2.5%" src="https://files.catbox.moe/128goj.png"> <img width="2.5%" src="https://files.catbox.moe/o49n0d.png"> <br>
 </br>
   </a></p>
 
