@@ -1,5 +1,5 @@
 <div align="right">
-<img align="right" <img width="40%" src="https://files.catbox.moe/iq6r0y.png">
+<img align="right" <img width="53%" src="https://files.catbox.moe/iq6r0y.png">
 </div><p align="center"> $\color{#0D1117}{\textsf{EVERYTHING IS FINE !}}$<br>
 </p>
 <p align="center">
