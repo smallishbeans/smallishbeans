@@ -1,11 +1,13 @@
 <div align="right">
 <img align="right" <img width="40%" src="https://files.catbox.moe/iq6r0y.png">
-</div><p align="center"> $\color{#insert hex code}{\textsf{EVERYTHING IS FINE !}}$<br>
+</div><p align="center"> $\color{#D73235}{\textsf{EVERYTHING IS FINE !}}$<br>
   <hr>
 </p>
 <p align="center">
-hiii kawaii
-  <br>
+${\textsf{\color{#fcfed9}placeholder}}$ <br>
+${\textsf{\color{#fbf89a}placeholder}}$ <br>
+${\textsf{\color{#deed7e}placeholder}}$ <br>
+${\textsf{\color{#aeba52}placeholder}}$ <br>
 </br>
   </a></p>
   
@@ -15,7 +17,7 @@ hiii kawaii
 
 </div>
 
-<div align="center">
+<div align="right">
 
 [<img width="310" src="https://lastfm.dedomil.workers.dev/smallishmemes?dark">](https://last.fm/user/smallishmemes)
 
