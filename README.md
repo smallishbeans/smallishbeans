@@ -3,10 +3,10 @@
 </div><p align="center"> $\color{#0D1117}{\textsf{EVERYTHING IS FINE !}}$<br>
 </p>
 <p align="center">
-${\textsf{\color{#0D1117}placeholder}}$ <br>
-${\textsf{\color{#0D1117}placeholder}}$ <br>
-${\textsf{\color{#0D1117}placeholder}}$ <br>
-${\textsf{\color{#0D1117}placeholder}}$ <br>
+${\textsf{\color{#fcfed9}placeholder}}$ <br>
+${\textsf{\color{#fbf89a}placeholder}}$ <br>
+${\textsf{\color{#deed7e}placeholder}}$ <br>
+${\textsf{\color{#aeba52}placeholder}}$ <br>
 </br>
   </a></p>
 
@@ -16,15 +16,6 @@ ${\textsf{\color{#0D1117}placeholder}}$ <br>
   <hr>
 </p>
 <p align="center">
-${\textsf{\color{#fcfed9}placeholder}}$ <br>
-${\textsf{\color{#fbf89a}placeholder}}$ <br>
-${\textsf{\color{#deed7e}placeholder}}$ <br>
-${\textsf{\color{#aeba52}placeholder}}$ <br>
+<img width="310" src="https://lastfm.dedomil.workers.dev/smallishmemes?dark">
 </br>
   </a></p>
-
-<div align="center">
-
-[<img width="310" src="https://lastfm.dedomil.workers.dev/smallishmemes?dark">](https://last.fm/user/smallishmemes)
-
-</div>
