@@ -12,8 +12,7 @@ ${\textsf{\color{#aeba52}placeholder}}$ <br>
 
   <div align="left">
 <img align="left" <img width="40%" src="https://files.catbox.moe/fwjwh3.png">
-</div><p align="center"> $\color{#D73235}{\textsf{EVERYTHING IS FINE !}}$<br>
-  <hr>
+</div>
 </p>
 <p align="center">
 <img width="310" src="https://lastfm.dedomil.workers.dev/smallishmemes?dark">
