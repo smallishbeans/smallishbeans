@@ -3,10 +3,10 @@
 </div><p align="center"> $\color{#0D1117}{\textsf{EVERYTHING IS FINE !}}$<br>
 </p>
 <p align="center">
-${\textsf{\color{#fcfed9}‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ placeholder}}$ <br>
-${\textsf{\color{#0D1117}placeholddddfsfssfddffdfdfdfdfdfdfdsfsfdder}}$ ${\textsf{\color{#fbf89a}placeholder}}$ <br>
-${\textsf{\color{#deed7e}this is wip ok}}$ <br>
-${\textsf{\color{#aeba52}(o゜▽゜)o☆}}$ <br>
+${\textsf{\color{#0D1117}placeholddddfsfssfddffdfdfdfdfdfdfdsfsfdder}}$ ${\textsf{\color{#fbf89a}◟elliot or}}$ <br>
+${\textsf{\color{#0D1117}placeholddddfsfssfddffdfdfdfdfdfdfdsfsfdder}}$ ${\textsf{\color{#fbf89a}(★‿★)‎ ‎ ‎‎  ‎ chiaki}}$ <br>
+${\textsf{\color{#0D1117}placeholddddfsfssfddffdfdfdfdfdfdfdsfsfdder}}$ ${\textsf{\color{#fbf89a}she  ⊹  her   𓏵}}$ <br>
+${\textsf{\color{#0D1117}placeholddddfsfssfddffdfdfdfdfdfdfdsfsfdder}}$ ${\textsf{\color{#fbf89a}atabook ✦ rentry}}$ <br>
 </br>
   </a></p>
 
